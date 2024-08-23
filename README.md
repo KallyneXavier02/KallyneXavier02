@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi 👋
 
 **Meu nome é Kallyne Xavier Santa Rosa**
 
