@@ -1,4 +1,4 @@
-## Hi 👋
+### Boas vindas ao meu perfil 👋
 
 **Meu nome é Kallyne Xavier Santa Rosa**
 
@@ -10,4 +10,4 @@
   00001139237512sp@al.educacao.sp.gov.br
   @KallyneXavier
 
-![](https://tenor.com/pt-BR/view/naruto-gif-19427546)
+![](https://media1.tenor.com/m/opEBWw0uddoAAAAC/umm.gif)
